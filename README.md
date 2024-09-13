@@ -7,7 +7,7 @@
 
 💞️ I’m looking to collaborate on projects involving computer vision, game development with AI, and real-time gesture control systems. I enjoy working on impactful, cutting-edge tech solutions.
 
-📫 How to reach me: You can contact me via email at pranavudayraoparvekar123@gmail.com or on my phone at +91 7499859995.
+📫 How to reach me: You can contact me via email at pranavudayraoparvekar123@gmail.com or on my phone .
 
 😄 Pronouns: He/Him
 
